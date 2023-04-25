@@ -1,0 +1,1 @@
+Shockwaves is a groundbreaking online blockchain game designed to deliver an unparalleled gaming experience through its innovative blend of AI-driven NFTs, algorithmically generated cities, and music-infused gameplay.
